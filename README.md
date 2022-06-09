@@ -25,3 +25,5 @@ $ cd bangsat
 $ ls
 
 $ python bangsat.py
+
+ASAL MAU CRACK KATAKAN RIAN-XD GANTENG BIAR DAPET OK
